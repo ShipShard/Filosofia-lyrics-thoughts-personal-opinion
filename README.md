@@ -1,0 +1,1 @@
+# Filosofia-lyrics-thoughts-personal-opinion
